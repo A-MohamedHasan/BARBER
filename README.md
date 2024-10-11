@@ -1,1 +1,2 @@
-this file is not fully finish i will finish in future
+![BARBER](https://github.com/user-attachments/assets/ca0f70b0-e466-48c6-8cc3-bae1780572e4)
+
